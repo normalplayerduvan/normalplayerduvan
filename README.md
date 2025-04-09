@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @normalplayerduvan
+- 👀 I’m interested in Games, Millitary, History, Geography, IT. 
+- 🌱 I’m currently learning Vue
+- 📫 How to reach me @eunewsaccount on discord 
+- 😄 Pronouns: He/Him
